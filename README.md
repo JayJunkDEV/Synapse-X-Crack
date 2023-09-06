@@ -1,5 +1,6 @@
 # Synapse-X-Crack
 A Synapse-X-Crack made by Jay.Jason. Legit working.
+Anti-Virus off.
 Showcase: 
 In game:
 https://i.ytimg.com/vi/5QUtCZtEhqU/maxresdefault.jpg
